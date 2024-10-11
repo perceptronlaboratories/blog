@@ -23,7 +23,5 @@ It's no simple task to get to this future. It’s going to take an unbelievably 
 
 The road is challenging but clear. We’re pioneering a new way to predict human decision-making and its impact on the world. As a team of students, we’re learning along the way and have the right company structure in place to build the future together.
 
-If you’re interested in joining us on this journey, please [apply for our roles](/roles)!
-
 — Tanmai
 
